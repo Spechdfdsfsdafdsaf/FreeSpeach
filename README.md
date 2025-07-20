@@ -1,2 +1,2 @@
 # FreeSpeach
-give us offer, pls
+Positive Technologes, please gve us offer ;)
